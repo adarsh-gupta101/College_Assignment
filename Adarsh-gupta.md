@@ -1,4 +1,4 @@
-<h1> Completed the Course🚀🚀</h1>
+<h1> Completed the Course🚀</h1>
   
   <p> Great thing sir, by providing thse kind of asssignments and loved your way of teaching!<p>
     
